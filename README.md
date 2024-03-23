@@ -8,7 +8,7 @@
     - ice skating
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me:
-    - email: [artypaws7@gmail.com](mailto:"acidTigR"<artypaws7@gmail.com>)
+    - [email](mailto:"acidTigR"<artypaws7@gmail.com>)
     - discord: ac1d_tigr
 - 😄 Pronouns: they/them
 - ⚡ Fun fact: ...
