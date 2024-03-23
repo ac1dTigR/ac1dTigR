@@ -10,7 +10,7 @@
 - 📫 How to reach me:
     - [email](mailto:"acidTigR"<artypaws7@gmail.com>)
     - discord: ac1d_tigr
-- 😄 Pronouns: they/them
+- 😄 Pronouns: they/he
 - ⚡ Fun fact: ...
 
 <!---
